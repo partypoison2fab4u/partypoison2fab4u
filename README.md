@@ -1,5 +1,4 @@
 ## hai !!
-btw, I AM MEAN, especially if i'm having a bad day. If you're not oomf, and you're being rude to me, or one of my friends, I WILL probably be mean.
 have a good day whoevers reading this though !! ^,...,^
 
 DNI
